@@ -50,7 +50,7 @@ Let me tell you where we're from.“ ,<br>
 ## What Grandma Tells Me
 
 They say India was born at midngiht,<br>
-but India had been a home, a place, a land,<br> 
+but India had been a home, a place, a land<br> 
 before colonial rule.<br>
 
 ## Author's Note
