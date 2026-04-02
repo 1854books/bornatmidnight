@@ -4,7 +4,7 @@
 
 Born at Midnight[^2]
 
-Panoramas of India’s Past<br>
+panoramas of India’s past<br>
 by<br>
 Kalpit Parikh<br>
 
