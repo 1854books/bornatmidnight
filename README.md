@@ -60,7 +60,7 @@ Let me tell you where we're from.“ ,<br>
 
 They say India was born at midngiht, ,<br>
 but India had been a home, a place, a land ,<br> 
-before colonial rule. ,<br>
+before colonial rule.<br>
 
 ## Author's Note
 
