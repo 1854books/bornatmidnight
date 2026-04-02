@@ -72,6 +72,7 @@ that bridges the gap between India and teh World.
 
 1. Denyer, Circe. “Abstract Ocean Painting.“ Public Domain Pictures.
 2. Hannah-Jones, Nikole, and Renée Watson. The 1619 Project: Born on the Water. Illustrated by Nikkolas Smith, Kokila, 2021.
+3. Nehru, Jawaharlal. “The Quest: The Panorama of India’s Past.” The Discovery of India, Oxford University Press, 1946, pp. 49-68.
 
 ![](beforecolonialrule.jpg)
 
