@@ -37,7 +37,36 @@ Subjects: 1. Children's Books on Indian Colonial History 2. Children's Indian In
 
 वन्देमातरम्, *vandemātaram*: "Mother, I praise thee!“
 
+## Questions 
+
+My teacher gives us an assignment. “Who are you?“ she asks. “Trace your roots.<br>
+Write about where you are from.“<br>
+
+I start searching for India, but I start to get confused.
+
+I do not know where I begin, what my story is. 
+
+At home, Grandma asks, “How was school?“
+
+I tell her about the assignment, how I couldn’t finish it. 
+
+I tell her that I am ashamed. 
+
+Grandma gathers the whole family, says,<br>
+“Come, let me tell you our beginning. ,<br>
+Let me tell you where we're from.“ ,<br>
+
+## What Grandma Tells Me
+
+They say India was born at midngiht, ,<br>
+but India had been a home, a place, a land ,<br> 
+before colonial rule. ,<br>
+
 ## Author's Note
+
+This book was inspired by *Born on the Water* and many of the same experiances to show that Indians <br>
+have their own proud origin story, one that did not begin in colonialism, in struggle, and in strife but<br>
+that bridges the gap between India and teh World. 
 
 ## Bibliography
 
