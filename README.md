@@ -55,8 +55,8 @@ before colonial rule.<br>
 
 ## Author's Note
 
-This book was inspired by *Born on the Water* and many of the same experiances to show that Indians <br>
-have their own proud origin story, one that did not begin in colonialism, in struggle, and in strife but<br>
+This book was inspired by *Born on the Water* and many of the same experiances to show that Indians 
+have their own proud origin story, one that did not begin in colonialism, in struggle, and in strife but 
 that bridges the gap between India and teh World. 
 
 ## Bibliography
