@@ -33,7 +33,7 @@ Subjects: 1. Children's Books on Indian Colonial History 2. Children's Indian In
 My teacher gives us an assignment. “Who are you?“ she asks. “Trace your roots.<br>
 Write about where you are from.“<br>
 
-I start searching for India, but I start to get confused.
+I start searching for India, but I begin to get confused.
 
 I do not know where I begin, what my story is. 
 
